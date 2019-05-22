@@ -1,0 +1,2 @@
+# linkaman
+untuk linkaman
